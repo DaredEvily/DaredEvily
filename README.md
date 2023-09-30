@@ -11,8 +11,6 @@
 
 - 👨‍💻 All of my projects are available at [Soon](Soon)
 
-- 📝 I regularly write articles on [IN Tech Field](IN Tech Field)
-
 - 📫 How to reach me **ahmedjokar082@gmail.com**
 
 - ⚡ Fun fact **I Love To Make Music On Flstudio**
